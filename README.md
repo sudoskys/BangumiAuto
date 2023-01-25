@@ -1,0 +1,2 @@
+# BangumiAuto
+kira~
